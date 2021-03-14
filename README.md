@@ -1,1 +1,0 @@
-# onurak6rarod
